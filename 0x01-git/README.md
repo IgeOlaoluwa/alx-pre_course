@@ -1,1 +1,1 @@
-great
+great is the lord
